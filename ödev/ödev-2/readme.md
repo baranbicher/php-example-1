@@ -1,0 +1,1 @@
+![picture](/ödev/ödev-2/s.png)
